@@ -30,8 +30,8 @@ Welcome to **SlideSharePPT**, your go-to platform for sharing presentations, doc
 
 ## Get Started
 
-Visit **[SlideSharePPT](https://www.slideshareppt.net)** and join a community of knowledge seekers and sharers.
-DOWNLOAD Any SLIDE SHARE PPT - JUST JOIN TELEGRAM, WORK 100% (https://t.me/slide_share_ppt)
+- Visit **[SlideSharePPT](https://www.slideshareppt.net)** and join a community of knowledge seekers and sharers.
+- DOWNLOAD Any SLIDE SHARE PPT - JUST JOIN TELEGRAM, WORK 100% (https://t.me/slide_share_ppt)
 
 ## Contributing
 
